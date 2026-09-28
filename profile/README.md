@@ -9,8 +9,7 @@ to boost athletic performance, learning, and community.
 - **Sports Journalism:** articles on our research and the club website
 
 ## Get involved
-Curiosity is the only prerequisite. No technical background needed.
-
+Curiosity is the only prerequisite. 
 - 📝 Interest form: https://forms.gle/eCHj9C82uihvumtQ9
 - ✉️ sportsdata@brown.edu
 - 📸 Instagram: [@brown_sports_data](https://instagram.com/brown_sports_data)
